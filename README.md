@@ -10,7 +10,7 @@ A Little About Me
 
     🌎 Currently based in Bronx, NY
 
-    📬 Reach me at zoraiz.sibtain@outlook.com
+    📬 Reach me at zoraiz.sibtain@hotmail.com
 
 🏆 My Journey
 
